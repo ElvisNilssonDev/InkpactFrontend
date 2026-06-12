@@ -1,2 +1,2 @@
 # Inkpact is Inprogress.....
-I will continue this project after 2 weeks
+I will continue this project after im done with other projects
